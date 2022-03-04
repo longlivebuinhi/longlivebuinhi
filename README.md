@@ -1,5 +1,5 @@
 ### Nhi B Yen/배연이
-I'm an Computer Science student at VNU University of Engineering and Technology and will attend Sungkyunkwan University in the Fall semester, 2022. 
+I'm a Computer Science student at VNU University of Engineering and Technology and will attend Sungkyunkwan University in the Fall semester, 2022. 
 My intended major is Software Engineering.
 
 I was an image-processing collaborator of RikkeiSoft, Hanoi. Now I'm working as a home tutor and a part-time SEO writer. 
