@@ -4,7 +4,7 @@ My intended major is Software Engineering.
 
 I was an image-processing collaborator of RikkeiSoft, Hanoi. Now I'm working as a home tutor and a part-time SEO writer. 
 
-I do love reading books, especially fiction. You can see my votes and reviews on 
+I do read books, mostly fiction. You can see my votes and reviews on 
 [Goodreads](https://www.goodreads.com/longlivebuinhi) or [Facebook](https://www.facebook.com/keepmysadnessaway/).
 
 I also grow a Youtube channel about my 12 years of self-studying and another one for shitposting only :D Just check them out: 
