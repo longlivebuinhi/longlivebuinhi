@@ -1,7 +1,7 @@
 ### Nhi Bui Yen/나미
 I'm a Software Engineering student at Ajou University, South Korea
 
-I do read books, mostly fiction. You can see my votes and reviews on 
+I love reading books, mostly fiction. You can see my ratings and reviews on 
 [Goodreads](https://www.goodreads.com/longlivebuinhi)
 
 I also grow a Youtube channel about my 12 years of self-studying and another one for shitposting only :D Just check them out: 
