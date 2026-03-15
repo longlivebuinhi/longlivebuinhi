@@ -1,11 +1,8 @@
-### Nhi B Yen/배연이
-I'm a Computer Science student at VNU University of Engineering and Technology and will attend Sungkyunkwan University in the Fall semester, 2022. 
-My intended major is Software Engineering.
-
-I was an image-processing collaborator of RikkeiSoft, Hanoi. Now I'm working as a home tutor and a part-time SEO writer. 
+### Nhi Bui Yen/나미
+I'm a Software Engineering student at Ajou University, South Korea
 
 I do read books, mostly fiction. You can see my votes and reviews on 
-[Goodreads](https://www.goodreads.com/longlivebuinhi) or [Facebook](https://www.facebook.com/keepmysadnessaway/).
+[Goodreads](https://www.goodreads.com/longlivebuinhi)
 
 I also grow a Youtube channel about my 12 years of self-studying and another one for shitposting only :D Just check them out: 
 
