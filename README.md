@@ -1,13 +1,11 @@
-### Nhi Bui Yen/나미
-I'm a Software Engineering student at Ajou University, South Korea
+### Bui Yen Nhi/나미
+A Software Engineering, micro-majoring in Industrial Mathematics student at Ajou University, South Korea
 
 I love reading books, mostly fiction. You can see my ratings and reviews on 
 [Goodreads](https://www.goodreads.com/longlivebuinhi)
 
-I also grow a Youtube channel about my 12 years of self-studying and another one for shitposting only :D Just check them out: 
-
-[Channel 1](https://www.youtube.com/channel/UCbtHncKm1F43lEFtdcWTkXw)
-[Channel 2](https://www.youtube.com/channel/UC08c-HWp9cjVAV9lzbzmjew)
+I also grow a Youtube channel about my studying abroad journey :D Just check it out 
+[@manbican370](https://www.youtube.com/channel/UCbtHncKm1F43lEFtdcWTkXw)
 
 
 
